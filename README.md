@@ -7,6 +7,6 @@
 
 ***About me***  
 
-I read a lot as I'm now retired, and travel between South Africa, England and Japan. I'm a Europhile, but am losing my faith in the liberal democratic project (certiantly as a template for the rest of the world).
+I read a lot as I'm now retired, and travel between London and Tokyo. I'm a Europhile, but am losing my faith in the liberal democratic project (certiantly as a template for the rest of the world).
 
 
